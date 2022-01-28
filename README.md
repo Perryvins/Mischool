@@ -1,0 +1,2 @@
+# Mischool
+Technological incline 
